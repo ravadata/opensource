@@ -8,4 +8,6 @@
 
 #### ~ Simon Park, CEO, RAVA
 simonpark.rava@gmail.com
+https://www.linkedin.com/in/simon-park-b373671aa
+http://rava.org
 
