@@ -6,5 +6,6 @@
 
 *Enjoy!*
 
-#### Simon Park, CEO, RAVA
+#### ~ Simon Park, CEO, RAVA
+simonpark.rava@gmail.com
 
